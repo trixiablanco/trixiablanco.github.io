@@ -1,1 +1,0 @@
-# trixiablanco.github.io
